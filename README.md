@@ -1,0 +1,1 @@
+[PROJETO_TECNOLOGIAS_EMERGENTES.pdf](https://github.com/user-attachments/files/20747177/PROJETO_TECNOLOGIAS_EMERGENTES.pdf)
